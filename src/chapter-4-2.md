@@ -1,5 +1,4 @@
-Chapter 4: Mindful Approaches to Technology Use: Practicing Tech Hygiene
-========================================================================
+# Practicing Tech Hygiene
 
 Practicing tech hygiene is essential for maintaining a healthy and balanced relationship with technology. In this chapter, we will explore techniques for practicing tech hygiene and using technology in a mindful and intentional way.
 

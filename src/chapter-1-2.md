@@ -1,5 +1,4 @@
-Chapter 1: Introduction: The Impact of Technology on Our Mental Health
-======================================================================
+# The Impact of Technology on Our Mental Health
 
 Technology has revolutionized the way we live, work, and communicate. However, excessive technology use can have negative effects on our mental health and well-being. In this chapter, we will explore the impact of technology on our mental health and the need for a more mindful approach to technology use.
 

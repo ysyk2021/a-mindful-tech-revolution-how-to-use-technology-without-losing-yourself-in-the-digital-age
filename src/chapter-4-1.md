@@ -1,5 +1,4 @@
-Chapter 4: Mindful Approaches to Technology Use: Setting Boundaries Around Technology Use
-=========================================================================================
+# Setting Boundaries Around Technology Use
 
 Setting boundaries around technology use is an essential aspect of maintaining a healthy and balanced relationship with technology. In this chapter, we will explore techniques for setting boundaries around technology use and using technology in a mindful and intentional way.
 

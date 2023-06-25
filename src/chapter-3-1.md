@@ -1,5 +1,4 @@
-Chapter 3: Identifying Problematic Technology Use: Signs of Technology Addiction
-================================================================================
+# Signs of Technology Addiction
 
 Technology addiction is a growing concern in the digital age, with research linking excessive technology use to negative mental and physical health effects. In this chapter, we will explore signs of technology addiction and techniques for addressing problematic technology use.
 

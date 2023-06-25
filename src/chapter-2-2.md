@@ -1,5 +1,4 @@
-Chapter 2: Understanding Mindfulness in the Digital Age: Applying Mindfulness to Technology Use
-===============================================================================================
+# Applying Mindfulness to Technology Use
 
 In the digital age, technology has become an integral part of modern life. However, excessive technology use can have negative effects on mental and physical health. Applying mindfulness to technology use can be an effective technique for promoting mental health and well-being. In this chapter, we will explore techniques for applying mindfulness to technology use.
 

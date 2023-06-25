@@ -1,5 +1,4 @@
-Chapter 7: Mindful Parenting in the Digital Age: Teaching Mindfulness Skills to Children
-========================================================================================
+# Teaching Mindfulness Skills to Children
 
 In today's digital age, teaching mindfulness skills to children is essential for promoting a healthy relationship with technology and enhancing overall well-being. In this chapter, we will explore techniques for teaching mindfulness skills to children.
 

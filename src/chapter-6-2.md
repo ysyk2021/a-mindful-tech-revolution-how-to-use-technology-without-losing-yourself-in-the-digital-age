@@ -1,5 +1,4 @@
-Chapter 6: Mindful Work and Productivity: Techniques for Staying Focused and Productive
-=======================================================================================
+# Techniques for Staying Focused and Productive
 
 Staying focused and productive in the digital age requires intentional effort. In this chapter, we will explore techniques for staying focused and productive while maintaining a mindful approach to work.
 

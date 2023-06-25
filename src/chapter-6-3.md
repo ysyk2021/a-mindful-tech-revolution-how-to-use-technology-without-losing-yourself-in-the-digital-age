@@ -1,5 +1,4 @@
-Chapter 6: Mindful Work and Productivity: Mindful Time Management Strategies
-============================================================================
+# Mindful Time Management Strategies
 
 In the digital age, managing time mindfully is essential for reducing stress and enhancing productivity. In this chapter, we will explore mindful time management strategies that can help individuals stay focused and productive while maintaining a healthy work-life balance.
 

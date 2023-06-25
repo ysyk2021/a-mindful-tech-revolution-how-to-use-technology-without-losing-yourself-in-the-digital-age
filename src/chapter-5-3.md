@@ -1,5 +1,4 @@
-Chapter 5: Mindful Communication in the Digital Age: Building Supportive Online Communities
-===========================================================================================
+# Building Supportive Online Communities
 
 In today's digital age, communication has become more important than ever. However, it is essential to maintain a mindful approach to communication in order to build supportive online communities and enhance overall well-being. In this chapter, we will explore techniques for building supportive online communities through mindful communication.
 

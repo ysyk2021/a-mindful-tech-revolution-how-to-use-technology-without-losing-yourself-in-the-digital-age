@@ -1,5 +1,4 @@
-Chapter 8: Mindful Relationships and Connection: Building Community Through Technology
-======================================================================================
+# Building Community Through Technology
 
 Technology has transformed the way we connect with others, but it is important to maintain a mindful approach to technology use in order to build meaningful relationships and community. In this chapter, we will explore techniques for building community through technology while maintaining a mindful approach to technology use.
 

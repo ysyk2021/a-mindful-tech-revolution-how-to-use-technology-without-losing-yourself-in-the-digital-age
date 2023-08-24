@@ -1,5 +1,3 @@
-Chapter 4: Mindful Approaches to Technology Use
-===============================================
 
 In the digital age, technology has become an integral part of modern life. However, using technology in a mindful and intentional way is essential for maintaining mental health and well-being. In this chapter, we will explore techniques for setting boundaries around technology use, practicing tech hygiene, and creating a mindful social media presence.
 
@@ -19,5 +17,4 @@ Creating a Mindful Social Media Presence
 Social media has become an integral part of modern life, but it can also be a source of stress and anxiety. Creating a mindful social media presence involves setting intentions for technology use, practicing digital detoxing, cultivating self-awareness, and engaging in positive interactions on social media.
 
 In conclusion, using technology in a mindful and intentional way requires mindfulness and intentionality. By setting boundaries around technology use, practicing tech hygiene, and creating a mindful social media presence, individuals can maintain a healthy and balanced relationship with technology and promote their mental health and well-being in the digital age.
-
 

@@ -1,5 +1,3 @@
-Chapter 9: Maintaining a Mindful Tech Revolution
-================================================
 
 Maintaining a mindful tech revolution requires ongoing effort and commitment. In this chapter, we will explore techniques for overcoming setbacks and challenges, staying motivated and committed, and continuing to grow in your mindfulness practice.
 

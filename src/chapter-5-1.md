@@ -1,4 +1,3 @@
-# Effective Communication in Online Interactions
 
 Effective communication is essential for building and maintaining relationships, but it can be challenging in the digital age. In this chapter, we will explore techniques for practicing mindful communication in online interactions.
 

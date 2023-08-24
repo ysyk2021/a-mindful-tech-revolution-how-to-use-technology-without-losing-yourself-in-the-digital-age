@@ -1,4 +1,3 @@
-# Navigating Conflict and Criticism
 
 In the digital age, conflict and criticism can arise more easily due to the ease and speed of communication. However, it is important to maintain a mindful approach to communication in order to navigate conflict and criticism in a constructive and compassionate way. In this chapter, we will explore techniques for navigating conflict and criticism through mindful communication.
 

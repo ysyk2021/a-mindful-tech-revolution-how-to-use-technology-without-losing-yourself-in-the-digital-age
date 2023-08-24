@@ -1,4 +1,3 @@
-# Creating a Mindful Social Media Presence
 
 Social media has become an integral part of modern life, but it can also be a source of stress and anxiety. In this chapter, we will explore techniques for creating a mindful social media presence and using technology in a way that supports mental health and well-being.
 

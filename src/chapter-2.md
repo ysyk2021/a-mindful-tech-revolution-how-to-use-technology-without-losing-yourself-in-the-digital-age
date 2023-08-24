@@ -1,5 +1,3 @@
-Chapter 2: Understanding Mindfulness in the Digital Age
-=======================================================
 
 In the digital age, practicing mindfulness can be an effective technique for promoting mental health and well-being. In this chapter, we will explore what mindfulness is, how it can be applied to technology use, and the benefits of a mindful approach to technology.
 

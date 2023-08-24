@@ -1,4 +1,3 @@
-# Navigating Children's Technology Use
 
 Navigating children's technology use can be challenging for parents in the digital age. However, by maintaining a mindful approach to technology use and setting clear boundaries around technology use, parents can help their children develop a healthy relationship with technology. In this chapter, we will explore techniques for navigating children's technology use.
 

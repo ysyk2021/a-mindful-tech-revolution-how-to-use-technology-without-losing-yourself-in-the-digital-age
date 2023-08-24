@@ -1,4 +1,3 @@
-# The Effects of Excessive Screen Time
 
 Excessive screen time has become a growing concern in the digital age, with research linking it to a range of negative health effects. In this chapter, we will explore the effects of excessive screen time and techniques for identifying problematic technology use.
 

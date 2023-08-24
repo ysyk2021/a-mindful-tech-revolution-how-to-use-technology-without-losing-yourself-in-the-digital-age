@@ -1,4 +1,3 @@
-# Continuing to Grow in Your Mindfulness Practice
 
 Maintaining a mindful tech revolution requires ongoing effort and commitment. In this chapter, we will explore techniques for continuing to grow in your mindfulness practice and maintaining a mindful approach to technology use.
 

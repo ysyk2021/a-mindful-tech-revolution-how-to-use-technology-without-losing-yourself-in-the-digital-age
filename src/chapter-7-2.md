@@ -1,4 +1,3 @@
-# Creating Healthy Technology Habits as a Family
 
 In today's digital age, parenting can be challenging as children are exposed to technology at an early age. However, by creating healthy technology habits as a family, parents can help their children maintain a mindful approach to technology use. In this chapter, we will explore techniques for mindful parenting in the digital age.
 

@@ -1,4 +1,3 @@
-# What is Mindfulness?
 
 In the digital age, mindfulness has become an increasingly popular technique for promoting mental health and well-being. But what exactly is mindfulness? In this chapter, we will explore the definition of mindfulness and its relevance to technology use.
 

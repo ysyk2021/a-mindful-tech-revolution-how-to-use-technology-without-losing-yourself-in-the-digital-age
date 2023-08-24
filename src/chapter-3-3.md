@@ -1,4 +1,3 @@
-# Common Challenges in Digital Detoxing
 
 Digital detoxing - or taking a break from technology - is an important technique for promoting mental health and well-being in the digital age. However, it can also be challenging due to our dependence on technology. In this chapter, we will explore common challenges in digital detoxing and techniques for overcoming them.
 

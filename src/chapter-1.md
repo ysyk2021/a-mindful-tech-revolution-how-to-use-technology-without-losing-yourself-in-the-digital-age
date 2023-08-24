@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 Technology has transformed the way we live, work, and communicate. While technology has many benefits, including increased connectivity, access to information, and improved productivity, excessive technology use can have negative effects on our mental health and well-being. In this chapter, we will explore the impact of technology on our mental health and the need for a more mindful approach to technology use.
 

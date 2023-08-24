@@ -1,4 +1,3 @@
-# Summary of Key Points
 
 In this book, we have explored the importance of maintaining a mindful approach to technology use in order to reduce stress and enhance well-being in the digital age. Here are some key points to remember:
 

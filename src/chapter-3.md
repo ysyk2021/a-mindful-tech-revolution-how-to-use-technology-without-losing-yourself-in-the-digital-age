@@ -1,5 +1,3 @@
-Chapter 3: Identifying Problematic Technology Use
-=================================================
 
 Technology has become an integral part of modern life, but excessive technology use can have negative effects on mental and physical health. In this chapter, we will explore signs of technology addiction, the effects of excessive screen time, and common challenges in digital detoxing.
 

@@ -1,5 +1,3 @@
-Chapter 7: Mindful Parenting in the Digital Age
-===============================================
 
 Mindful parenting in the digital age requires intentional effort and the use of various techniques to promote a healthy relationship with technology. In this chapter, we will explore techniques for navigating children's technology use, creating healthy technology habits as a family, and teaching mindfulness skills to children.
 

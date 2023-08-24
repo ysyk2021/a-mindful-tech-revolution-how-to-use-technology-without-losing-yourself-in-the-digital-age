@@ -1,5 +1,3 @@
-Chapter 6: Mindful Work and Productivity
-========================================
 
 Technology has transformed the way we work, but excessive technology use can lead to distraction and reduced productivity. In this chapter, we will explore techniques for maintaining a mindful approach to work and enhancing productivity.
 

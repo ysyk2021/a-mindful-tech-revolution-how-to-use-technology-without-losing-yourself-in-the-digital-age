@@ -8,3 +8,7 @@ This book is for anyone who wants to learn how to use technology without letting
 In the following chapters, we will explore the impact of technology on attention and productivity, strategies for managing technology use, and techniques for practicing mindfulness in the digital age. Through practical advice and real-world examples, this book will provide you with the tools you need to take control of your technology use and find balance in the digital age.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng

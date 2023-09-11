@@ -1,5 +1,4 @@
-Chapter 4: Applying Mindfulness to Technology Use
-=================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore practical ways to apply mindfulness to our technology use. By bringing a mindful approach to our interactions with digital devices and online platforms, we can develop a healthier and more intentional relationship with technology. Let's delve into specific techniques and strategies for applying mindfulness to technology use.
 

@@ -1,5 +1,4 @@
-Chapter 12: Continuing to Grow in Your Mindfulness Practice
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for continuing to grow in your mindfulness practice amidst the rapid advancements of technology and the demands of the digital age. Cultivating mindfulness is an ongoing journey that requires consistent effort and dedication. By incorporating these strategies into your daily life, you can deepen your mindfulness practice and navigate the digital landscape with greater clarity, presence, and self-awareness. Let's delve into ways to continue growing in your mindfulness practice.
 

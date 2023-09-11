@@ -1,5 +1,4 @@
-Chapter 6: Signs of Technology Addiction
-========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the signs and symptoms of technology addiction. As technology continues to play an increasingly prominent role in our daily lives, it is crucial to be aware of the potential for addiction and its impact on our well-being. By recognizing these signs, we can take proactive steps to address and manage our relationship with technology in a healthier and more mindful way. Let's delve into the signs of technology addiction.
 

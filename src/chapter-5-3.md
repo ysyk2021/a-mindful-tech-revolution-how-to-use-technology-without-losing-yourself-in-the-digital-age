@@ -1,5 +1,4 @@
-Chapter 6: Building Supportive Online Communities
-=================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of building supportive online communities and how they can contribute to our well-being in the digital age. Online communities provide opportunities for connection, support, collaboration, and personal growth. By cultivating mindful engagement and fostering a sense of community, we can create online spaces that promote positivity, empathy, and meaningful connections. Let's dive into strategies for building and nurturing supportive online communities.
 

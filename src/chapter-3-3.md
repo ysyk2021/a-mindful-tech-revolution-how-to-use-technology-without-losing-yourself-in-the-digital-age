@@ -1,5 +1,4 @@
-Chapter 8: Common Challenges in Digital Detoxing
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the common challenges that individuals face when attempting to detox from technology and cultivate a healthier relationship with digital devices. While digital detoxing offers numerous benefits, it is not without its obstacles. By understanding and addressing these challenges, we can navigate the journey of digital detoxing more effectively and increase our chances of long-term success. Let's delve into the common challenges in digital detoxing and strategies for overcoming them.
 

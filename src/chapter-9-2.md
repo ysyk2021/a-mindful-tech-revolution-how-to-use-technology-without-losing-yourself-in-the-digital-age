@@ -1,5 +1,4 @@
-Chapter: Staying Motivated and Committed
-========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies to help you stay motivated and committed while navigating the digital age. We live in a fast-paced world where technology has become an integral part of our lives. While it offers numerous benefits, it can also be overwhelming and distracting, often causing us to lose focus and motivation. However, with the right approach, we can harness technology's power while staying true to ourselves.
 

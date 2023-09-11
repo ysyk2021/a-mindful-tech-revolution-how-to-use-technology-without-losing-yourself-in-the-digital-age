@@ -1,5 +1,4 @@
-Chapter 4: Techniques for Staying Focused and Productive
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various techniques and strategies to help you stay focused and productive in the digital age. With the constant distractions and information overload that technology brings, it is essential to cultivate habits and utilize tools that can enhance your concentration and effectiveness. This chapter offers practical tips for harnessing technology without losing yourself in its vastness.
 

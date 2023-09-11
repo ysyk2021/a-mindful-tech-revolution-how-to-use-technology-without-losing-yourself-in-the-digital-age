@@ -1,5 +1,4 @@
-Chapter 6: Setting Boundaries Around Technology Use
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of setting boundaries around technology use and provide practical strategies for maintaining a healthy relationship with digital devices in the digital age. By establishing clear limits and guidelines, you can harness the benefits of technology without allowing it to consume your life. Let's dive into effective techniques for setting boundaries and regaining control over your digital habits.
 

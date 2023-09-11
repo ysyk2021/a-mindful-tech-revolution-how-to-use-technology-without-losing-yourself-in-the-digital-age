@@ -1,5 +1,4 @@
-Chapter 6: Practicing Tech Hygiene
-==================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the concept of tech hygiene and its importance in maintaining a healthy relationship with technology. Tech hygiene refers to the conscious and intentional practices that help us create a balanced and mindful approach to using digital devices and technologies. By implementing these practices, we can prevent digital overwhelm, reduce distractions, and cultivate a more harmonious integration of technology into our lives. Let's delve into practical techniques for practicing tech hygiene.
 

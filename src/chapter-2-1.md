@@ -1,5 +1,4 @@
-Chapter 2: What is Mindfulness?
-===============================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the concept of mindfulness and its significance in navigating the digital age with a sense of balance, presence, and well-being. Mindfulness is a practice rooted in ancient wisdom that has gained immense popularity in recent years due to its effectiveness in cultivating mental clarity, emotional resilience, and an overall sense of contentment. Let's delve into understanding what mindfulness is and how it can positively impact our relationship with technology.
 

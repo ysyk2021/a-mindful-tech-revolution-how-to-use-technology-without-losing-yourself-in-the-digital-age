@@ -1,5 +1,4 @@
-Chapter 10: Balancing Work and Technology Use
-=============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for finding a healthy balance between work and technology use in the digital age. With the increasing integration of technology in our professional lives, it is essential to establish boundaries and adopt mindful practices to prevent work from dominating our time and well-being. Let's delve into practical techniques for achieving a harmonious equilibrium between work responsibilities and technology usage.
 

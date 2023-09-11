@@ -1,5 +1,4 @@
-Chapter 12: Creating a Mindful Social Media Presence
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of cultivating a mindful approach to using social media. Social media platforms have become an integral part of our lives, and it is crucial to develop conscious habits and strategies to prevent them from negatively impacting our well-being and sense of self. Let's delve into practical techniques for creating a mindful social media presence.
 

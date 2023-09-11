@@ -1,5 +1,4 @@
-Chapter 6: Teaching Mindfulness Skills to Children
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the valuable practice of teaching mindfulness skills to children in the digital age. Mindfulness offers children tools to navigate the fast-paced and often distracting world of technology with greater awareness, presence, and emotional well-being. By introducing mindfulness practices tailored to children's needs and developmental stages, we can empower them to cultivate a healthier relationship with technology and enhance their overall well-being. Let's delve into practical strategies for teaching mindfulness skills to children.
 

@@ -1,5 +1,4 @@
-Chapter 8: Navigating Conflict and Criticism
-============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for navigating conflict and criticism in the digital age. As technology becomes increasingly integrated into our lives, conflicts and criticisms may arise in our interactions online. By approaching these situations mindfully and employing effective communication techniques, we can navigate conflicts and criticisms with grace, empathy, and understanding. Let's delve into practical ways to navigate conflict and criticism in the digital realm.
 

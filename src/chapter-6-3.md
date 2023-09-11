@@ -1,5 +1,4 @@
-Chapter 8: Mindful Time Management Strategies
-=============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore mindful time management strategies that can help you navigate the digital age with intention and purpose. By cultivating awareness and making conscious choices about how you spend your time, you can effectively manage your tasks and priorities without feeling overwhelmed or drained by technology. Let's dive into practical techniques for incorporating mindfulness into your time management practices.
 

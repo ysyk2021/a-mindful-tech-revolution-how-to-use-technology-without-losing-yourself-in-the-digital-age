@@ -1,5 +1,4 @@
-Chapter 8: Benefits of a Mindful Approach to Technology
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the numerous benefits that arise from adopting a mindful approach to technology use. By cultivating mindfulness in our interactions with digital devices and online platforms, we can harness the power of technology while maintaining our well-being, focus, and overall sense of fulfillment. Let's delve into the advantages of embracing a mindful approach to technology.
 

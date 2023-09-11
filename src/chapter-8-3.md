@@ -1,5 +1,4 @@
-Chapter 6: Building Community Through Technology
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the power of technology to build and foster communities in the digital age. As our lives become increasingly intertwined with technology, it is vital to leverage its potential for creating meaningful connections and supporting collective well-being. By implementing these strategies, you can harness the power of technology to build and strengthen communities that promote mindfulness, collaboration, and positive social change. Let's delve into ways to build community through technology.
 

@@ -1,5 +1,4 @@
-Chapter 8: Cultivating Intimacy and Connection Online
-=====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for cultivating intimacy and connection in the digital age. As technology enables us to connect with others across distances and share our lives online, it's essential to navigate these virtual spaces with intention and mindfulness. By implementing these strategies, you can foster meaningful relationships and cultivate genuine connections while using technology. Let's delve into ways to cultivate intimacy and connection online.
 

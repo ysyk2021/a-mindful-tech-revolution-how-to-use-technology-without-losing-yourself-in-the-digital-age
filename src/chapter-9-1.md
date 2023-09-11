@@ -1,5 +1,4 @@
-Chapter 10: Overcoming Setbacks and Challenges
-==============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for overcoming setbacks and challenges on the journey towards a mindful tech revolution. Navigating the digital age while maintaining a healthy relationship with technology is not always easy, and it is common to encounter obstacles along the way. By developing resilience and adopting effective approaches, we can overcome setbacks and continue progressing towards our goal of using technology without losing ourselves. Let's delve into strategies for overcoming setbacks and challenges.
 

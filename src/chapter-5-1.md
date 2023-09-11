@@ -1,5 +1,4 @@
-Chapter 10: Effective Communication in Online Interactions
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the essential skill of effective communication in online interactions. As technology continues to shape our communication landscape, it is crucial to cultivate mindful and effective communication habits when engaging with others in the digital realm. By practicing active listening, using clear and respectful language, fostering empathy, and navigating potential challenges, we can build stronger connections and promote positive interactions online. Let's delve into practical strategies for effective communication in the digital age.
 

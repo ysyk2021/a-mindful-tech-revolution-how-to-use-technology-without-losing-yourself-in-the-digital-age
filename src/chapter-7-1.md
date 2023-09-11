@@ -1,5 +1,4 @@
-Chapter 10: Navigating Children's Technology Use
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the important topic of navigating children's technology use in the digital age. As parents and caregivers, it is crucial to guide and support children in developing healthy relationships with technology. By approaching their technology use mindfully and implementing appropriate strategies, we can help children reap the benefits while minimizing potential risks. Let's delve into effective ways to navigate children's technology use.
 

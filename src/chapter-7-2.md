@@ -1,5 +1,4 @@
-Chapter 12: Creating Healthy Technology Habits as a Family
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of creating healthy technology habits as a family in the digital age. Technology has become an integral part of our lives, and it is crucial to establish a balanced and mindful approach to its use within the family unit. By setting clear boundaries, fostering open communication, promoting quality time, and being mindful of our tech habits, we can create a harmonious and enriching family environment. Let's delve into practical strategies for creating healthy technology habits as a family.
 
